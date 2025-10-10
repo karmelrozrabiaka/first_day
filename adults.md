@@ -1,9 +1,12 @@
-
-- flowers
-- dress
-- socks
-- diamond ring
-- cheers points
-- travel voucher
-- handy
-- watch
+sdgsdggggggggggggggggggggggg
+sd
+v
+f
+vfbfg
+w
+gw
+vw
+v
+wr
+wr
+bw
